@@ -6,7 +6,7 @@
 
 🏃🏻 Besides football, I also actively participate in sports. Basketball🏀 and Lacrosse🥍 are my go-to sports for staying active and engaging in friendly competition. There's nothing quite like the rush of adrenaline on the court or field.
 
-✈️ I have a passion for traveling and exploring new cultures. I've been to 🇹🇼 🇹🇭 🇯🇵 🇪🇸 🇵🇹 🇫🇷 🇩🇪 🇸🇪 🇲🇦 🇨🇿 🇦🇹 🇭🇺 🇦🇩. Each destination has left a lasting impression, and I cherish the experiences and memories I've gained from these adventures.
+✈️ I have a passion for traveling and exploring new cultures. I've been to 🇹🇼 🇹🇭 🇯🇵 🇪🇸 🇵🇹 🇫🇷 🇮🇹 🇩🇪 🇸🇪 🇲🇦 🇨🇿 🇦🇹 🇭🇺 🇦🇩. Each destination has left a lasting impression, and I cherish the experiences and memories I've gained from these adventures.
 
 🏙️ Among all the cities I've visited, Barcelona holds a special place in my heart. Its vibrant atmosphere, stunning architecture, and rich history captivate me every time I set foot in the city.
 
